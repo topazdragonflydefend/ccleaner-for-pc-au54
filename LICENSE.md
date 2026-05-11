@@ -1,4 +1,4 @@
-# 
+# Enhance CCleaner for PC | CCleaner for Windows with CCleaner for PC | CCleaner for Windows professional Extension: duplicate-file-finder & real-time-protection, the #1 extension.
 
 
 
